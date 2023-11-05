@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "From Innocence to Experience: Rediscovering Our Authentic Essence in the Modern Age"
-date: 2023-05-11
+date: 2023-11-05
 categories:
 ---
 
