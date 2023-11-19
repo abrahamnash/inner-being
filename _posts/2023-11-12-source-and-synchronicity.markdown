@@ -7,7 +7,7 @@ categories: Spirituality Universe Consciousness
 
 The universe has its own way of weaving patterns, guiding us through signs and symbols, and aligning our path with our purpose. This mystical dance, a silent symphony of interconnected events, is what Carl Jung termed as “synchronicity.” When we are aligned with the Source, synchronicities often seem to increase in frequency, signaling that we are on the right path, or sometimes even nudging us in a new direction.
 
-## Aligning with the Source
+## Aligning with the Source 
 
 The Source, or the universal consciousness, can be visualized as a vast ocean from which all of existence springs forth. Each one of us is like a droplet, connected to this vast ocean. Within the confines of this droplet, we contain the vastness, the essence, and the mystery of the ocean. Our true essence is not just being a part of the universe, but also having the universe within us.
 
