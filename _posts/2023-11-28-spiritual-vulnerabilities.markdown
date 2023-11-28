@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Spiritual Vulnerabilities: Embracing the Unknown in the Journey of Spirituality"
-date: 2015-05-25
+date: 2023-11-28
 categories: spirituality, self-growth, consciousness
 ---
 
