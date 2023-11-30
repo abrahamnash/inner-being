@@ -5,7 +5,7 @@ date: 2023-11-05
 categories:
 ---
 
-### Whispers from the Cosmos: Poetic Reflections from Deep Meditative Moments
+# Whispers from the Cosmos: Poetic Reflections from Deep Meditative Moments
 
 When we immerse ourselves in the tranquility of meditation, the universe whispers profound truths to us. These succinct expressions are distillations of wisdom. Here are some poetic reflections born from moments of deep meditation:
 
