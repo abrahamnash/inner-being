@@ -5,7 +5,7 @@ date: 2023-11-08
 categories: Academia Knowledge Society
 ---
 
-## Institutional Settings and Knowledge Dissemination in Academia
+# Institutional Settings and Knowledge Dissemination in Academia
 
 In our ongoing exploration of "Health and the Inner Being of the Self," we now delve into the intricate web of institutional settings and academia. This discussion sheds light on how hierarchical power structures in the dissemination of knowledge can gatekeep who energetically adopts the possibility to handle such knowledge. This dynamic creates a disruption in access to fluency and the adoption of knowledge capabilities. Energetically, intelligence is often enabled by the power structures that one inhabits upon being admitted to these institutions, necessitating a great deal of effort to cultivate this energy beforehand. However, recent peer-to-peer movements have demonstrated alternative systems that enliven and surface the potentials of individuals in society, challenging the traditional academic stronghold.
 
