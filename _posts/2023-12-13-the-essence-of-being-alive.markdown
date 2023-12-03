@@ -5,65 +5,30 @@ date: 2023-12-12
 categories: poetry, life reflections, truth, self-awareness
 ---
 
-In the reflective realm where life intertwines with profound truths, here are some musings, poetic in nature, exploring the depths of existence and self-awareness.
+## Passage of Time
+The passage of time is unique to no one. The art lies in its unfolding, where we can neither teach nor learn anything.
 
-## The Mirror of Our World
+## Dear Flower
+Overwhelmed by your sheer beauty, dear flower, you awaken and revitalize me. Beholding you respond to the sun, I am transported to the conscious interplay and nature of life.
 
-Living within the mirror of our worlds,  
-Time is limited, learning open, abilities deep.  
-Capability is not isolation,  
-But a reflection of our openness to the world,  
-Enhancing our relationship with time.
+## Mastery
+You become what you master. Master yourself - become who you truly are.
 
-## Experience Before Knowledge
+## The Horizon
+If nothing is to wash up on our shores, we are left with the horizon.
 
-I choose to experience before I read,  
-Preserving the authenticity of my journey.  
-Others may read me, in knowing or in doubt,  
-How we manage this uncertainty,  
-A journey in itself.
+## Interest in Health
+My interest lies not in medicine but in health.
 
-## The Tree and the Roadside
+## Unified Stories
+Every person, every nation, every continent has their own story, until they realize they were part of the same story.
 
-A great tree with roots deep in the earth,  
-Beside a roadside, two worlds apart.  
-In its silent depth, truths echo more than words,  
-Roped away, the absence of truth rings loud,  
-Advising peace in the face of dissonance.
+## Truth and Society
+Truth is revealed, not told. I cannot learn about truth. Lifelong, life in balance, within my internal world, I inhabit that which I practice. We build society on our fears, to move our internal worlds beyond our external worlds.
 
-## Beyond Genetics
+## Love's Capacity
+Only the feminine open to receiving can be loving with each other. Only the masculine who have something to offer can love each other. 
 
-Moving beyond genetics, a path laid out,  
-The same force that united parents in life's dance.  
-Live your truth, hold it close,  
-Family transcends the boundaries of home.
+## Truth's Revelation
+Truth does not reveal itself unless it is recognized. Many other things in the world reveal themselves.
 
-## A Man’s Musings
-
-Rain pours, wind tickles, humanity in question.  
-The passage of time, unique yet universal,  
-The unfolding quality of life,  
-Where the true art lies.
-
-## Ode to a Flower
-
-Overwhelmed by the beauty of a flower,  
-A symbol of awakening and vitality.  
-Not worthy, yet wholly captivated,  
-A dance with the sun, a testament to life.
-
-## Mastery and Self
-
-What you master becomes your identity,  
-Master yourself, embrace your true essence.  
-When shores are empty,  
-The horizon still holds infinite possibilities.
-
-## Reflections on Health and Unity
-
-Interest lies not in medicine, but in health,  
-Each person, nation, continent with their own story,  
-Until realizing we're part of a greater whole,  
-In the tapestry of life, unity and diversity intertwine.
-
-Through these poetic musings, we explore the vast landscapes of life, truth, and the journey towards deeper self-awareness. Each piece serves as a contemplation, inviting introspection and connection with our innermost selves.
