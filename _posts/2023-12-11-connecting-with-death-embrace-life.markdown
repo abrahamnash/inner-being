@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Blog 31: Connecting with Death to Embrace Life"
+title: "Connecting with Death to Embrace Life"
 date: 2023-12-11
 categories: life and death, existential exploration, karma, self-awareness
 ---
