@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Blog 29: Navigating the World with Expanding Consciousness"
+title: "Navigating the World with Expanding Consciousness"
 date: 2023-12-09
 categories: consciousness, awareness, self-development, mindfulness
 ---
