@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Blog 26: Small Experiments of the Self - Alignment, Energy, and Conscious Living"
+title: "Small Experiments of the Self - Alignment, Energy, and Conscious Living"
 date: 2023-12-07
 categories: self-awareness, energy alignment, personal growth, mindfulness
 ---
