@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Blog 31: Connecting with Death to Embrace Life - Part 2"
+title: "Connecting with Death to Embrace Life - Part 2"
 date: 2023-12-11
 categories: life and death, existential exploration, self-awareness, reincarnation
 ---
