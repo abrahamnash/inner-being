@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Blog 30: Farming Practices - Embracing Complexity and Harmonious Integration"
+title: "Farming Practices - Embracing Complexity and Harmonious Integration"
 date: 2023-12-10
 categories: sustainable farming, conscious living, complexity, harmony
 ---
