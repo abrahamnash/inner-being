@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Blog 28: Meditation is not a practice, it's a form of self-discovery"
+title: "Meditation is not a practice, it's a form of self-discovery"
 date: 2023-12-08
 categories: meditation, self-discovery, mindfulness, yoga
 ---
