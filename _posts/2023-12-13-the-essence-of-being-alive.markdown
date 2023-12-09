@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Blog 32: Poetic Musings - Reflections on Life and Truth"
+title: "Poetic Musings - Reflections on Life and Truth"
 date: 2023-12-12
 categories: poetry, life reflections, truth, self-awareness
 ---
