@@ -1,4 +1,4 @@
-# **Abraham Nash's Blog: "Nexus of Consciousness: Journeys Through Inner Realms & Cosmic Reflections"**
+# **Abraham Nash's Blog: Journeys Through Inner Realms **
 
 Welcome to my digital sanctum, where we embark on journeys that bridge the chasm between our inner landscapes and the expansive universe.
 
