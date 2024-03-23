@@ -5,6 +5,10 @@ date: 2023-12-11
 categories: life and death, existential exploration, karma, self-awareness
 ---
 
+## Union: Life, Death, and Light
+
+Understanding these cycles of our form, is not about dwelling on the end but about enriching our life energies. It enables us to live more consciously, and authentically. By enabling ourselves to engage beyond these dualities whilst recognising and acknowledging their artful interpaly, we can find a more profound connection with life, embracing the dualities that define our existence.
+
 ## Union
 Nature thrives on cycles – birth, growth, decay, and rebirth. Similarly, if we take reality as a form of the whole, and pull it apart in different ways, it will seek union - this occurs in the world, each with varying degrees of complexity. Form, the infinite, is pulled apart into a profound existence - this is form undergoing expression to understand itself in a more profound way, - it is source itslef undergoing a re-balancing, a hygenic expression of the divine, undergoing internal shifts to settle itself, in a way that it finds balance in its form, and discovers itself with more internal expressions, can be said to be the source of our existence. 
 
@@ -31,7 +35,3 @@ Light is a form of expression, drawn toward the intensity of our potentiation. E
 To lean too far towards one is to inevitably draw closer to the other, for death fears life just as life fears death, creating a magnetic pull between these existential states, beckoning form to dance between one and the other. Yet, a fragment of our consciousness has the potential to transcend these opposites, evolving into a form that is aware, conscious, and indivisible growing inside. We are not just participants in this journey; we are called to it, graced by the opportunity to merge with this perpetual cycle, dissolving the illusion of separation and embracing the oneness that beckons us.
 
 Embracing these dualities can create a new form within us, that recognizes an aspect that lies beyond these dualities. It's about nurturing and recognizing life in its many forms. The awareness of death in this context doesn't lead to fear but a deeper connection with the life force that sustains us.
-
-## Union: Life, Death, and Light
-
-Understanding these cycles of our form, is not about dwelling on the end but about enriching our life energies. It enables us to live more consciously, and authentically. By enabling ourselves to engage beyond these dualities whilst recognising and acknowledging their artful interpaly, we can find a more profound connection with life, embracing the dualities that define our existence.
