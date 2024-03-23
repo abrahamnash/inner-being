@@ -5,6 +5,7 @@ date: 2023-12-12
 categories: poetry, life reflections, truth, self-awareness
 ---
 
+# Begining of Journey
 In our everyday existence, we often cross paths with moments of profound depth, experiences we typically keep close to our hearts. These instances, brimming with deep connection and meaningfulness, capture the essence of what it means to truly live. 
 
 As we nurture this change within ourselves, we must be mindful of the delicate balance between our inner evolution and the society we inhabit.
