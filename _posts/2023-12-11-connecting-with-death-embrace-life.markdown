@@ -10,7 +10,7 @@ categories: life and death, existential exploration, karma, self-awareness
 Understanding these cycles of our form is not about dwelling on the end but about enriching our life as artful energies of expression. It enables us to live more consciously, and authentically. By enabling ourselves to engage beyond these dualities while recognizing and acknowledging their artful interplay, we can find a more profound connection with life, embracing the dualities that define our existence.
 
 ## Union
-Nature thrives on cycles – birth, growth, decay, and rebirth - it is all a part of the same journey. 
+Nature thrives on cycles – birth, growth, decay, death, and rebirth - it is all a part of the same journey. 
 
 If we take reality as a form of the whole, and pull it apart in different ways, it will seek union - this occurs in the world, each with varying degrees of complexity. Form, the infinite, is pulled apart into a profound existence - this is form undergoing expression to understand itself more profoundly, in the same way, that we learn and re-adjust ourselves in the nature of who we are - it is source itslef undergoing a delicat play of introspection in infite understanding, returning to its never changing form, it has undergone transformation. It is a hygenic expression of the divine, undergoing internal shifts to settle itself, in a way that it finds balance in its form, and discovers itself with more internal expressions, can be said to be the source of our existence. 
 
