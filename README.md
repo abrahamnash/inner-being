@@ -1,4 +1,4 @@
-# ** Foundations: Inner Light, Outer World **
+# ** Inner Light, Outer World **
 
 Welcome to my digital sanctum, where we embark on journeys that bridge the chasm between our inner landscapes and the outer world.
 
