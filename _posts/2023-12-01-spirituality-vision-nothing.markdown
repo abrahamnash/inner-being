@@ -1,8 +1,8 @@
 ---
 layout: post
-title: "Spirituality, that which is no-thing "
+title: "Embracing the Paradox of Spirituality"
 date: 2023-12-01
-categories: spirituality, vision
+categories: spirituality, paradox
 ---
 
 Life revels in paradoxes. 'No-thing' and 'every-thing', are one and the same. They coexist in a harmonious balance. These things are both dualities to be resolved, and intertwined realities to be experienced and felt. They reflect the multifaceted nature of truth.
