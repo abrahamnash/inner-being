@@ -11,7 +11,7 @@ In life's intricate dance, where energies intertwine and fates collide, our expe
 
 ## The Eyes: Portals of Shared Visions
 
-When two people share a vision, there's a spontaneous, conscious connection that transcends words. To look into another's eyes is to share in their vision, to be welcomed into the sanctum of their soul.
+When two people share a vision, there's a spontaneous, conscious connection that transcends words. To look into another's eyes is to share in their vision, to be welcomed into the sanctum of their being.
 
 ## Recognition: The Essence of Connection
 
