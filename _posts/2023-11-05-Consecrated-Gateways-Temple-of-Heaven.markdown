@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Consecrated Spaces are Gateways
+title: "Consecrated Spaces"
 date: 2023-11-05
 categories:
 ---
