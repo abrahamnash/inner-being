@@ -6,7 +6,7 @@ Explore reflections and personal experiences at the intersection of internal ene
 
 🌠 **Featured Topics:**
 
-- **Inner Health & Journey:** Explore the depths of personal existence and life energies.
+- **Inner Being & Journeying:** Explore the depths of personal existence and life energies.
   
 - **Conscious Connections:** Examine the connections and shared experiences that define human interaction.
   
