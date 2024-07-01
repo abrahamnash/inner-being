@@ -1,4 +1,4 @@
-# **Inner Light, Outer World**
+# **Inner being
 
 🌌 **About This Blog**
 
