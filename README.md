@@ -2,7 +2,7 @@
 
 🌌 **About This Blog**
 
-Explore reflections and personal experiences at the intersection of internal energies and the external universe. Delve into consciousness, personal growth, and how they interact with the wider world.
+I share my personal inner experiences in the world and how I have found them to interact in the world.
 
 🌠 **Featured Topics:**
 
