@@ -33,6 +33,4 @@ Why, you might wonder, should we choose to remain when we have the option to dep
 
 ## A Journey of Discovery and Reflection
 
-Before we conclude, it's essential to provide a disclaimer. While we explore these realms of consciousness and energy alignment, we must acknowledge that there are modern medical perspectives, such as schizophrenia, which offer a different lens on these experiences. It's crucial to approach this exploration with discernment and self-awareness.
-
 In the end, this journey is one of deep insight and reflection. It's a path that invites us to understand the intricate dance of energies within and around us. It's a journey where we learn to harmonize our inner symphony and, when the time is right, to leave the physical shell behind, if only for a while, to explore the boundless realms of consciousness.
